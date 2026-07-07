@@ -1,7 +1,5 @@
 # Carlos M. Moreira, B.S., M.S.
 
-📍 North Attleboro, MA &nbsp;|&nbsp; 📞 617-915-5036 &nbsp;|&nbsp; ✉️ [cmoreira@misfirm.com](mailto:cmoreira@misfirm.com)
-
 ## Profile
 
 Highly motivated, goal-directed IT professional with proven performance directing IT functions for an entire organization — partnering with executive and senior management, setting policy, and leading service-delivery and project management, with particular emphasis in science & engineering research and academic environments. Skilled at building state-of-the-art technology infrastructure while keeping a sharp focus on the bottom line, recruiting the right people, and guiding domain specialists toward shared objectives.
