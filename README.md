@@ -86,6 +86,7 @@ Drove technical customer requirements and presented architected solutions to mee
 - Well-Architected Proficient
 
 **Rubrik, Inc.**
+- Rubrik Black Belt #11
 - Rubrik Technical Associate
 - Rubrik Technical Professional
 - Rubrik Ransomware Recovery Expert
