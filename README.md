@@ -2,7 +2,7 @@
 
 **Enterprise Architect | Cloud Transformation Leader | Trusted Technology Advisor**
 
-North Attleboro, MA | 617-259-4475 | cmoreira@misfirm.com | [linkedin.com/in/caliche](https://linkedin.com/in/caliche)
+[linkedin.com/in/caliche](https://linkedin.com/in/caliche)
 
 ---
 
